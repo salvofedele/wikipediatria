@@ -7,9 +7,7 @@ Ottimo il progetto di educazione sanitaria del Il Pensiero Scientifico Editore d
 
 Una piccola cosa che avrei fatto di più? Rendere trasparente il processo di scrittura "collettiva".
 
-Chi ha scritto il singolo pezzo? Con la revisione di quale "mamma"? 
-
-Con la supervisione editoriale di quale degli "autori"?
+Chi ha scritto il singolo pezzo? Con la revisione di quale "mamma"? Con la supervisione editoriale di quale degli "autori"?
 
 Tanto per distinguerlo davvero dai tanti progetti editoriali collettivi finti che si vedono in giro nei vari giornaletti che arrivano nella posta (indesiderata) di mamme e pediatri italiani e che sono frutto per lo più di "redazionali" scritti dall'industria.
 
